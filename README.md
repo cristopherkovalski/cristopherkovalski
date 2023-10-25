@@ -7,7 +7,7 @@
 
 - 📫 Contato: **cristopherkovalski@gmail.com**
 
-- 📄 Para mais informações: [https://drive.google.com/file/d/1cH8vzxAuI67Cp2GTWY2rCimo-TBfyVGE/view?usp=sharing](https://drive.google.com/file/d/1cH8vzxAuI67Cp2GTWY2rCimo-TBfyVGE/view?usp=sharing)
+- 📄 Para mais informações: [https://drive.google.com/file/d/1cH8vzxAuI67Cp2GTWY2rCimo-TBfyVGE/view?usp=sharing](https://drive.google.com/file/d/1cH8vzxAuI67Cp2GTWY2rCimo-TBfyVGE/view?usp=sharing](https://drive.google.com/file/d/1g_3cvSAA4ONBstTOvnQ1f9ipFRRBr28-/view?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
