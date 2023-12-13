@@ -3,11 +3,10 @@
 
 - 🔭 Atualmente no 4º período da faculdade **em busca de estágio na área de Desenvolvimento**
 
-- 🌱 Estudando **C, Java e React-Native.**
+- 🌱 Estudando **C#, Java e React.**
 
 - 📫 Contato: **cristopherkovalski@gmail.com**
 
-- 📄 Para mais informações: https://drive.google.com/file/d/1g_3cvSAA4ONBstTOvnQ1f9ipFRRBr28-/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
